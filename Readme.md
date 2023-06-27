@@ -1,1 +1,3 @@
-Jurany Adelia RamÃ­rez Pineda - Omar Alexandro Espinosa Fernandez - Daniela Rivera Moreno - Juan Andrés Camaño Furtado -
+#Juan Andrés Camaño Furtado# :gring:
+ 
+Jurany Adelia RamÃ­rez Pineda - Omar Alexandro Espinosa Fernandez - Daniela Rivera Moreno - Beatriz Collin
