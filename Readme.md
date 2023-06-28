@@ -1,1 +1,1 @@
-Jurany Adelia Ramírez Pineda
+Jurany Adelia Ramírez Pineda - Omar Alexandro Espinosa Fernandez
